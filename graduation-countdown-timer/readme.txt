@@ -1,0 +1,1 @@
+ All copyrights belongs to Rabia Gelgi
